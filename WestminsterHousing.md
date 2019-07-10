@@ -4,6 +4,7 @@
 
 ### 3 BED 
 1291 w 133rd cir 2 bath 2,150 		**716 per/pers** (wants $ for dog) [Link](https://www.zillow.com/homedetails/1291-W-133rd-Cir-Westminster-CO-80234/12955702_zpid)
+
 6221 w 110th ave 2 bath 2,445**		**815 per/pers** (Super nice house, potential for 4th person) [Link](https://www.zillow.com/homedetails/6221-W-110th-Ave-Westminster-CO-80020/13683430_zpid/)
 1358 W 135th dr 3 bath 2,099 		**700 per/pers** (nice house, massive yard, cramped kitchen) [Link](https://www.zillow.com/homedetails/1358-W-135th-Dr-Westminster-CO-80234/12955287_zpid/)
 6334 E 137th ave 2.5 bath 2,619		**873 per/pers** (very nice, no $ for dog) [Link](https://www.zillow.com/homedetails/6334-E-137th-Ave-Thornton-CO-80602/58653060_zpid/)
