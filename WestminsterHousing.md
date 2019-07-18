@@ -18,6 +18,10 @@
 10521 Routt ln 2 bath 1,795 		**600 per/pers** (best 3 person for price) [Link](https://www.zillow.com/homedetails/10521-Routt-Ln-Westminster-CO-80021/13681257_zpid/)
 
 
+12665 Kalamath Ct 3 bath 2,495        **831 per/pers** (good place slightly expensive, large yard) [Link](https://www.zillow.com/homedetails/12665-Kalamath-Ct-Westminster-CO-80234/12956595_zpid/)
+
+13112 Quivas St 2 bath 2,140            **713 per/pers** (solid choice) [Link](https://www.zillow.com/homedetails/13112-Quivas-St-Westminster-CO-80234/12956377_zpid/)
+ 
 ### 4 BED 
 1100 W 135th dr 2.5 bath 2,175 		**543 per/pers** (solid house) [Link](https://www.zillow.com/homedetails/1100-W-135th-Dr-Westminster-CO-80234/12955304_zpid/)
 
@@ -37,7 +41,7 @@
 
 ### 5 BED 
 
-10235 Newton Court 5 bed 4 bath 3,500 	**700 per/pers **( huge house huge yard ) 8/29 [Link](https://www.zillow.com/homedetails/10235-Newton-Ct-Westminster-CO-80031/12978507_zpid/)
+10235 Newton Court 5 bed 4 bath 3,500 	**700 per/pers** ( huge house huge yard ) 8/29 [Link](https://www.zillow.com/homedetails/10235-Newton-Ct-Westminster-CO-80031/12978507_zpid/)
 
 
 
@@ -74,5 +78,8 @@
 
 
 
+
+
+## Superior 
 
 
