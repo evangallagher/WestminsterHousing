@@ -39,6 +39,13 @@
 
 6714 W 98th Cir 3 bath, 2,750 		**687 per/pers** (solid pick, more expensive) (8/1) [Link](https://www.zillow.com/homedetails/6714-W-98th-Cir-Westminster-CO-80021/13684589_zpid/)
 
+
+
+11405 King Way  4 bath 2,175            **550 per/pers** (amazing pick, need 4th) [Link](https://www.zillow.com/homedetails/11405-King-Way-Westminster-CO-80031/12964483_zpid/?)
+
+13190 Shoshone St 3 bath 2,500      **625 per/pers** (solid pick) [Link](https://www.zillow.com/homedetails/13190-Shoshone-St-Westminster-CO-80234/12956349_zpid)
+
+11091 Trojan Ct 4 bath 2,400            **600 per/pers** (good pick) [Link](https://www.zillow.com/homedetails/11091-Trojan-Ct-Westminster-CO-80031/12964940_zpid/)
 ### 5 BED 
 
 10235 Newton Court 5 bed 4 bath 3,500 	**700 per/pers** ( huge house huge yard ) 8/29 [Link](https://www.zillow.com/homedetails/10235-Newton-Ct-Westminster-CO-80031/12978507_zpid/)
